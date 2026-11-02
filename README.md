@@ -1,0 +1,1 @@
+Praktiki po system software
